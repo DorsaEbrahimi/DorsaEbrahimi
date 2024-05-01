@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning About Game
 - 💞️ I’m looking to collaborate on My Security Job
 - 📫 Reach Me By My Mail
-- 😄 Pronouns: Special!      
+- 😄 Pronouns: Special!       
 - ⚡ Fun fact: :)        
 
 <!---
