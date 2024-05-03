@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on My Security Job
 - 📫 Reach Me By My Mail
 - 😄 Pronouns: Special!       
-- ⚡ Fun fact: :)         
+- ⚡ Fun fact: :)          
 
 <!---
 DorsaEbrahimi/DorsaEbrahimi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
